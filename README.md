@@ -31,6 +31,8 @@ Providing top-tier AntiBot solutions with fast support and high success rates. B
 
 **More antibots coming soon!**
 
+Contact us at: Enquiry@jevi.dev
+
 Interested in learning more or joining our community? Follow the link below:
 
 [Join Our Discord](https://discord.gg/UFQk3hKzar)
